@@ -1,1 +1,1 @@
-College Assessment Paper: Create a Portfolio/Personal Website
+College Assessment Activity: Create a Portfolio/Personal Website.
